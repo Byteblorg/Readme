@@ -1,6 +1,5 @@
-
-Mon skypeid est "heracles710_rns"
-Je pense qu'il préfère parler là-bas.
-Ne mentionnez pas Skype sur le pigiste.
-Nous devons garder le terme de pigiste.
-Veuillez me trouver sur Skype!
+My skypeid is "heracles710_rns"
+I think it is prefer to speak there.
+Don't mention Skype on the freelancer chat.
+We must keep the term of freelancer.
+Please find me on Skype!
