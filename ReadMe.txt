@@ -1,5 +1,3 @@
-
-
 Meine Skypeid ist "heracles710_rns"
 Ich denke, es ist vorzuziehen, dort zu sprechen.
 Erwähne Skype nicht im freiberuflichen Chat.
