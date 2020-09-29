@@ -1,5 +1,6 @@
-Meine Skypeid ist "heracles710_rns"
-Ich denke, es ist vorzuziehen, dort zu sprechen.
-Erwähne Skype nicht im freiberuflichen Chat.
-Wir müssen unsere freiberufliche Tätigkeit beibehalten.
-Bitte finden Sie mich auf Skype!
+
+My Skypeid is "heracles710_rns"
+I think it's preferable to speak there.
+Don't mention Skype in the freelance chat.
+We need to keep our freelance work.
+Please find me on Skype!
